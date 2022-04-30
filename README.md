@@ -1,7 +1,5 @@
 # Image in an Image in an Image in an Image in an Image in an Image in...
-Why would you ever want to hide an image, in an image, in an image, in an image, in an image, in aan kfd ájsndfówa cñalsdkjc
-*Breaks keyboard*
-Cause is fun.
-Cause I can.
+Why would you ever want to hide an Image in an Image in an Image in an Image in an Image in an Image in... <br>
+I dont know.<br>
 
-Warning! Further the Image, lower the resolution.
+***Warning! Further the Image, lower the resolution.
